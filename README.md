@@ -13,4 +13,4 @@ No data is transferred or stored on remote servers in the internet.
 Contact Us
 If you have any questions about this Privacy Policy, please contact us:
 
-By email: yenafirst91@gmail.com
+By email: dev.ted.kim@gmail.com
